@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning something new everyday...I'm not picky as long as it's interesting or practical
 - 🌱 I’m currently learning cybersecurity from Google in Coursera
 - 💞️ I’m looking to collaborate on ...... TBD
-- 📫 How to reach me JustJenn99@gmail.com
+- 📫 How to reach me Jennmcclain69@gmail.com
 - 😄 Pronouns: Just a grrrl
 - ⚡ Fun fact: My son and I are both in the same cybersecurity course
 
