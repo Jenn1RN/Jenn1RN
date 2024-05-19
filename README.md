@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...... TBD
 - 📫 How to reach me Jennmcclain69@gmail.com
 - 😄 Pronouns: Just a grrrl
-- ⚡ Fun fact: My son and I are both in the same cybersecurity course
+- ⚡ Fun fact: I'm an education junkie 
 
 <!---
 Jenn1RN/Jenn1RN is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
